@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm WAGNER FERREIRA<br>* CUIABÁ - MT<br>* TRAINEE MOBILE<br><br> ALWAYS EVOLVING<br><br>
+I'm WAGNER TORRES<br>* CUIABÁ - MT<br>* TRAINEE MOBILE<br><br> ALWAYS EVOLVING<br><br>
 
 
 ## 🌐 Socials:
